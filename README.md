@@ -1,6 +1,6 @@
 # 𝔸𝕟𝕟𝕪𝕖𝕠𝕟𝕘𝕙𝕒𝕤𝕖𝕪𝕠 👋, 𝕀'𝕞 𝕄𝕒𝕙𝕚 마히 💜
 
-*I'm on ~*
+* I'm on ~ *
 
 [WHJR community](https://community.whitehatjr.com/profile/41739c70-30b1-4c8b-8e11-faefbf120b57)
 
