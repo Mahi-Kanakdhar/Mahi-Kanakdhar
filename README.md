@@ -16,7 +16,7 @@ I'm on ~
 
 * [Roblox](https://www.roblox.com/users/2826975289/profile)
 
-* My username [Mahi K#0301](https://discord.com/)
+* My username for Discord [Mahi K#0301](https://discord.com/)
 
 
 ![Image of Yaktocat](https://raw.githubusercontent.com/muhiqsimui/muhiqsimui/output/github-contribution-grid-snake.svg)
