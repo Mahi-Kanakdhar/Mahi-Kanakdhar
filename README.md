@@ -7,5 +7,6 @@
 [Replit](https://replit.com/@Mahi-Kanakdhar)
 [CODEPEN](https://codepen.io/Mahi-K)
 [Spotify](https://open.spotify.com/user/tt85kgt57to7y1c54ip9hpwyn)
+[Quora](https://www.quora.com/profile/Mahi-1055)
 
 ![Image of Yaktocat](https://raw.githubusercontent.com/muhiqsimui/muhiqsimui/output/github-contribution-grid-snake.svg)
