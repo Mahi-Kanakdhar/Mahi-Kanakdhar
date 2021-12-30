@@ -16,7 +16,7 @@ I'm on ~
 
 * [Roblox](https://www.roblox.com/users/2826975289/profile)
 
-* My username for Discord [Mia-XD#0301](https://discord.com/)
+* My username for Discord [💜 𝐏𝐮𝐫𝐩𝐥𝐞 𝐋𝐨𝐯𝐞 💜#8932](https://discord.com/)
 
 
 ![Image of Yaktocat](https://raw.githubusercontent.com/muhiqsimui/muhiqsimui/output/github-contribution-grid-snake.svg)
